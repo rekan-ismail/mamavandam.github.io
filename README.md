@@ -1,1 +1,0 @@
-# mamavandam.github.io
